@@ -4,7 +4,7 @@ Project Tim Progate DTS A26
 Anggota :
 
 Aldi Tegar Prakoso
-Agnes Jois
+Agnes Jois Palamba
 Bayu Yudha Purnomo
-Berthon C
+Berthon Christopel
 Andiar Yudha Rizki Darmawan
